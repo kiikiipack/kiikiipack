@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kiikiipack
+- 👀 I’m interested in ... gettin hoes
+- 🌱 I’m currently learning ... how to dougie harder
+- 💞️ I’m looking to collaborate on ... hoes
+- 📫 How to reach me ... www.soundcloud.com/hdmi3
